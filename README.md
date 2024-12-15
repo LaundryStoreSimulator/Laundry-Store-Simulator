@@ -2,7 +2,7 @@
 
 Are you ready to manage your own laundry business? **Laundry Store Simulator** is a thrilling simulation game where you step into the shoes of a laundry store manager. Learn everything you need to know about the game, including how to play, features, tips, and tricks.
 
-## [Download Laundry Store Simulator 🕹](https://www.dogapk.com/games/simulation/laundry-store-simulator-mod-apk-1-0-25-unlimited-money/)
+## [Download Laundry Store Simulator 🕹 Mod APK](https://www.dogapk.com/games/simulation/laundry-store-simulator-mod-apk-1-0-25-unlimited-money/)
 ![GitHub](https://play-lh.googleusercontent.com/r5ehVtRcprgobfCywvTSu6z8j5QVzQDK6ZW2ih58RFCy74rlSkBTQZ05kUNMWjY20iE=w526-h296-rw "G")
 
 ---
